@@ -5,8 +5,19 @@
 **2021-08**<br>
 
 - [챔피언의 마인드, 짐 아프레모, 갤리온 출판](https://ridibooks.com/books/606002329?_s=search&_q=%EC%B1%94%ED%94%BC%EC%96%B8%EC%9D%98%20%EB%A7%88%EC%9D%B8%EB%93%9C&_rdt_sid=search&_rdt_idx=0)
-- [저평가된 알짜 아파트 한채](https://ridibooks.com/books/869000084?_rdt_sid=myridi-recents&_rdt_idx=1)
-- [35세, 1억으로 내 아파트 갖기](https://ridibooks.com/books/776000255)
+- [저평가된 알짜 아파트 한채, 제이크차, 이레미디어](https://ridibooks.com/books/869000084?_rdt_sid=myridi-recents&_rdt_idx=1)
+  - 집을 보는 기준에 대해 설명. 내가 관심있는 지역이 있을 때 그 곳이 지금 고점인지 저점인지 파악하는 객관적인 기준에 대해 다루고 있다.
+- [35세, 1억으로 내 아파트 갖기, 정석우, 매일경제신문사](https://ridibooks.com/books/776000255)
+  - 현재 1/3 ~ 2/3 정도까지 읽었다. 
+  - 집을 구할때 대출금을 어떻게 구하고, 계산은 어떻게 하는지, 그리고 계약 절차는 통상 어떻게 이루어지는지, 어떤 때는 위약금을 무는 경우도 있는데 그런 내용들에 대해 정리되어 있다.
+
+<br>
+
+---
+
+
+
+
 
 
 
